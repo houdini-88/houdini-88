@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... music
 - 🌱 I’m currently learning ... computer science 
 - 💞️ I’m looking to collaborate on ... programming 
-- 📫 How to reach me ...zanakigrant8@gmail.com
+- 📫 How to reach me ...zgrant2024@fau.edu
 - 😄 Pronouns: ...he/him 
 - ⚡ Fun fact: ...I love to travel 
 
